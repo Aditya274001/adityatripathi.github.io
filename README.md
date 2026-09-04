@@ -1,1 +1,1 @@
-# adityatripathi.github.io
+adityatripathi.com
